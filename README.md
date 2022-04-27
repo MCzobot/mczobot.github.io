@@ -1,3 +1,5 @@
 # mczobot.github.io
 
-**Mateusz Czobot**
+**Oceń winko**
+
+**Polecam zajrzenie na stronę thestol.pl**
