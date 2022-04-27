@@ -2,4 +2,5 @@
 
 **Oceń winko**
 
-**Polecam zajrzenie na stronę thestol.pl**
+**Zajrzyj tutaj: thestol.pl**
+
