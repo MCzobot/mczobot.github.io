@@ -1,5 +1,4 @@
-# mczobot.github.io
+# Oceń winko
 
-**Oceń winko**
 
 **Sprawdź to: thestol.pl**
